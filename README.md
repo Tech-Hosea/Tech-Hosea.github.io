@@ -1,1 +1,0 @@
-# Tech-Hosea.github.io
